@@ -6,9 +6,13 @@
 
 ## [技術書典](https://techbookfest.org/organization/xgbb7VBt7C2bVHBwqe5LRA)
 
-### 技術書典17
+### 技術書典18
 
 🚧 鋭意準備中 🚧
+
+### 技術書典17
+
+* 出典なし 😇
 
 ### 技術書典16
 
